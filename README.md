@@ -10,3 +10,6 @@ Você pode entrar em contato comigo
 beatriz.estudantealura.2e@email.com
 
 @beatrizestudantealura2E
+
+![](https://media.tenor.com/okjfpFVYpNEAAAAM/anime-mitsuri-kanroji.gif)
+
